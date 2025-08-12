@@ -1,1 +1,0 @@
-INT. APARTMENT - DAY

@@ -4,5 +4,10 @@ NOTE: Podcasters from opening scene must come back into plot. Peter will somehow
 
 peter tarot
 
+peter cooking pancakes//breakfast adeptly. maybe he cooks breakfast/lunch/dinner throughout the film?
+    -cooks seed phrases for scotty
+
+peter/ 
+
 
 

@@ -133,7 +133,8 @@ SAM
 (to a line cook)
 Whatup Cory.
 
-CORY slams him up against a fridge. They get into a physical brawl but it's fun. They start laughing.
+CORY
+They get into a light but intense physical skirmish.
 
 INT. CAR - DAY
 
