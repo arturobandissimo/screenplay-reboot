@@ -37,19 +37,41 @@ PODCASTER 2 (NICK MULLEN) (V.O.)
 It's a Geocities website just like... screencapped. You're like "this is worth 40,000 USD. Fiat." You can display it on your washing machine display screen.
 
 PODCASTER 1 (STAVVY) (V.O.)
-*laughter*
+*laughter* watch my nft on your wifi electric toothbrush while you wash up before blowing your account manager.
 
 PODCASTER 2 (NICK MULLEN) (V.O.)
-Cuck shit.
+sign up for my newsletter.
 
 PODCASTER 1 (STAVVY) (V.O.)
 Sign me up dude. Buy low.
 
 PODCASTER 2 (NICK MULLEN) (V.O.)
-Buy now, pay later.
+Buy now, pay later. with klarna. buy 4 jpegs for 4 easy installments of ethereum.
 
 PODCASTER 1 (STAVVY) (V.O.)
 *laughter* 
+
+pod 2 
+turns out its just a room full of indian dudes pretending to be one white crypto guy, hes like fully ai.
+
+pod 1
+laughter
+
+pod 2
+they incubated him from someone's 23 and me dna. 
+
+pod 1
+the whitest strain ever found
+
+pod 2 
+he doesnt even have the like .00001% african. he's just like, formed in the primordial soup from a bolt of white lightning.
+
+pod 1
+laughter
+
+pod 2 he crawls out of this ancient ocean and hes like, hi, my name is ______ and i manifested my reality by being the first single celled organism to be birthed out of the primordial soup. buy my pdf for 19.99 and i'll show you 5 ways to score chicks at your local dunkin donuts.
+
+
 
 
 
