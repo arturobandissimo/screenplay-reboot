@@ -9,5 +9,9 @@ peter cooking pancakes//breakfast adeptly. maybe he cooks breakfast/lunch/dinner
 
 peter/ 
 
+peter:
+i dont wanna be better
+
+
 
 
