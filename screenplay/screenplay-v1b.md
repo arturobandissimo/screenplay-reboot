@@ -37,16 +37,16 @@ PODCASTER 2 (NICK MULLEN) (V.O.)
 It's a Geocities website just like... screencapped. You're like "this is worth 40,000 USD. Fiat." You can display it on your washing machine display screen.
 
 PODCASTER 1 (STAVVY) (V.O.)
-*laughter* Watch my NFT on your WiFi electric toothbrush while you wash up before blowing your account manager.
+*laughter* Watch my NFT on your WiFi electric toothbrush while you wash up before blowing your... c suite boss.
 
 PODCASTER 2 (NICK MULLEN) (V.O.)
 Sign up for my newsletter.
 
 PODCASTER 1 (STAVVY) (V.O.)
-Sign me up dude. Buy low.
+Buy low.
 
 PODCASTER 2 (NICK MULLEN) (V.O.)
-Buy now, pay later. With Klarna. Buy 4 JPEGs for 4 easy installments of Ethereum.
+Buy now, pay later. With Klarna. Buy my 8-bit resolution jpeg for .
 
 PODCASTER 1 (STAVVY) (V.O.)
 *laughter*
@@ -55,7 +55,7 @@ PODCASTER 2 (NICK MULLEN) (V.O.)
 Turns out it's just a room full of Indian dudes pretending to be one white crypto guy, he's like fully AI.
 
 PODCASTER 1 (STAVVY) (V.O.)
-*laughter*
+*laughter* white meat puppet
 
 PODCASTER 2 (NICK MULLEN) (V.O.)
 They incubated him from someone's 23 and Me DNA.
@@ -64,57 +64,28 @@ PODCASTER 1 (STAVVY) (V.O.)
 The whitest strain ever found.
 
 PODCASTER 2 (NICK MULLEN) (V.O.)
-He doesn't even have the like .00001% African. He's just like, formed in the primordial soup from a bolt of white lightning.
+He doesn't even have the like .00001% African. He's just like, formed from a piece of sperry topsider boat shoe leather that got struck by lightning in the primordial soup of what is now hartford connecticut. 
 
 PODCASTER 1 (STAVVY) (V.O.)
 *laughter*
 
 PODCASTER 2 (NICK MULLEN) (V.O.)
-He crawls out of this ancient ocean and he's like, "Hi, my name is Tanner Whitmore and I manifested my reality by being the first single-celled organism to be birthed out of the primordial soup. Buy my PDF for $19.99 and I'll show you 5 ways to score chicks at your local Dunkin' Donuts."
+He crawls out of this ancient ocean and he's like, "Hi, my name is Tanner Whitmore and I manifested my reality by being the first single-celled crypto fuckboy. Buy my PDF."
+
+podcaster 1 (STAvvy)
+*laughter*
 
 ---
 
 **SCOTT PETERSON'S YOUTUBE CHANNEL - "FINANCIAL FREEDOM WITH SCOTT"**
+see: iman gadzhi
 
 *Scott Peterson, 27, filmed in front of what appears to be a luxury car collection. Subtle flexing - expensive cars visible in background.*
 
 SCOTT PETERSON (V.O.)
 Look, I'm not here to be another guru telling you to buy my course. I'm not going to sit here and pretend I have all the answers. But here's the thing - I've figured out something that most people never will. I'm not trying to sell you anything, I'm just sharing what worked for me. I'm documenting my journey, that's all. But if you want to join me on this path to financial freedom, there's a link below. I'm not saying it's guaranteed, but what if you could quit your job in 6 months? What if you could finally live the life you want? I'm just asking questions. This isn't about money, it's about building something real. We're not just subscribers, we're a movement. Join the community - link in bio. Because guys, this is just the beginning.
 
-*The camera slowly pulls back, revealing we're watching this on PETER's laptop screen. Then the image itself begins to peel back, breaking the 4th wall of Scott Peterson's studio.*
 
-**INT. SCOTT PETERSON'S STUDIO - DAY**
-
-*We're now behind the scenes. Scott Peterson sits in his "luxury" setup - which is clearly just a green screen with luxury car footage projected behind him.*
-
-**DASHA NEKRASOVA** is his assistant. There are also audio and lighting technicians working on the set.
-
-*Scott continues his speech, completely unaware that we can now see the artifice behind his "authentic" persona.*
-
-FIRST AD
-Okay great. Let's pull back, take 5.
-
-*His assistant, DASHA NEKRASOVA, comes up to him and asks a question.*
-
-DASHA NEKRASOVA
-Your 3 o'clock with the exchange got pushed to tomorrow. They want to reschedule for 2 PM. Should I move the podcast interview to 4?
-
-SCOTT PETERSON
-Okay.
-
-*A guy comes up and asks another question.*
-
-GUY
-What's the compute?
-
-SCOTT PETERSON
-What's the compute?
-
-GUY
-The algorithm's flagging your content as repetitive. You're going to get demonetized if you keep saying "this is just the beginning" every thirty seconds.
-
-SCOTT PETERSON
-Well talk to the fucking writers then.
 
 
 
